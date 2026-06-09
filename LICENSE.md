@@ -1,4 +1,4 @@
-
+vip steal the brainrot base Scripts offers the most advanced steal the brainrot base Script, with auto-farm and instant win. Perfect for dominating
 
 
 
